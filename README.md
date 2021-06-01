@@ -10,8 +10,8 @@ Here some notes of some classes, activities requested by the teachers and the cr
 
 I am open to new challenges and projects. Thus, if you want to set up a conversation and have a coffee, I leave some contacts below:
 
-Email: lukasp6150@gmail.com
-Linkedin: https://www.linkedin.com/in/lvkin/
-Instagram: https://www.instagram.com/lvkinn/
+Email: lukasp6150@gmail.com <br>
+Linkedin: https://www.linkedin.com/in/lvkin/<br>
+Instagram: https://www.instagram.com/lvkinn/<br>
 
 Bye! ;)
